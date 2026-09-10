@@ -1,2 +1,2 @@
-repositorio de clases 9 de sep 2026
+repositorio de clases 9 de septiembre 2026
 
